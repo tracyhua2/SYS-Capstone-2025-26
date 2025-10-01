@@ -1,1 +1,1 @@
-# SYS-Capstone-2025-26
+# SYS Capstone 2025-26
